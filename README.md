@@ -43,6 +43,6 @@ Account information -- if you wish to access or edit the personal information an
 5. How to update this privacy policy
 We may adjust or change this privacy policy in due course. Any update of this privacy policy will be posted on our website with the date of update. Unless otherwise mandatory by laws, regulations or regulatory regulations, the adjusted or changed content will take effect 7 days after notice or publication. If you continue to use any of our services or visit our relevant websites after the privacy policy is adjusted or changed, we believe that you have fully read, understood and accepted the revised privacy policy and are bound by it.
 How to contact us
-If you have any questions, comments or Suggestions about this privacy policy, please contact us at wenpinxuan1@163.com:
+If you have any questions, comments or Suggestions about this privacy policy, please contact us at xingyecinaizhi@163.com:
 
 Normally, we will reply within 30 days.
